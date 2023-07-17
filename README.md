@@ -1,10 +1,11 @@
 - 👋 Hi, I’m @Prizzrakk
 - 👀 I’m interested in coding php/jquery, customizing wordpress
 - 🌱 I’m currently and everlearning php/jruery
-- 💞️ I’m looking to collaborate on making money...?
+- 💞️ I’m looking to collaborate on making money...  
+creating new interesting WordPress projects...?
 - 📫 How to reach me: prizzrak.kg+github@gmail.com
 - ✨ How to support me:  
-WMR315187737756, WMZ832127573536
+WMR315187737756, WMZ832127573536  
 PM U33008786, E33086293
 
 
