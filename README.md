@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on making money...?
 - 📫 How to reach me: prizzrak.kg+github@gmail.com
 - ✨ How to support me:  
-USDT (TRC20) TYBAq6u6Dtr9jv2WFuK2Nkw46mAHZMWrbM  
-ETH 0x07ea7510ba391fb54473def4c73e819790b7e76c  
+WMR315187737756, WMZ832127573536
 PM U33008786, E33086293
 
 
